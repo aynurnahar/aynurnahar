@@ -1,10 +1,10 @@
 ![web developer](https://media.licdn.com/dms/image/D5616AQG72x-6lG0nUg/profile-displaybackgroundimage-shrink_350_1400/0/1673853834623?e=1683158400&v=beta&t=Su_AM5Ho-HrBx1OW-k_ryqF8RF7PGnPWNwXLkcgR_is)
 
 
-### Hi there 👋, i am aynur nahar
+### Hi there 👋, i am Mukta islam
 #### web developer
 
-Hi, I am Aynur Nahar, a WordPress website developer with the passion and capability to create excellent and responsive websites. I have more than 5 years of experience in WordPress responsive websites. What can I do for you? beautiful WordPress website creation, and customization, landing page,elementor.Yoast SEO and woo commerce. HTML, CSS, JAVASCRIPT. I can provide any content inside a website. I learned these are working on professional labels. I am 100% qualified to do these jobs. I am committed to helping each client.
+Hi, I am Mukta islam, a WordPress website developer with the passion and capability to create excellent and responsive websites. I have more than 5 years of experience in WordPress responsive websites. What can I do for you? beautiful WordPress website creation, and customization, landing page,elementor.Yoast SEO and woo commerce. HTML, CSS, JAVASCRIPT. I can provide any content inside a website. I learned these are working on professional labels. I am 100% qualified to do these jobs. I am committed to helping each client.
 I am looking forward to working with you.
 
 Skills:  HTML / CSS /JAVASCRIPT
